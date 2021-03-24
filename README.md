@@ -8,4 +8,4 @@ i don't know how to use it.
 $$G_g$$
 ------
 ![](https://i.bmp.ovh/imgs/2021/03/f52b702854d74afa.png)
-[(space.bilibili.com)]
+[bilibili](https://space.bilibili.com/)
